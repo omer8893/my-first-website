@@ -14,6 +14,6 @@ In my website there is fortnite themes!
 ![image](https://user-images.githubusercontent.com/109214067/178716179-82fef05b-4504-4f00-8161-2ced4fde43f5.png)
 
 
-קרדיט לעומר כי כל הכויות שמורות לשרעבי עומר
+קרדיט לעומר כי כל הזכויות שמורות לשרעבי עומר
 
 מי שיתגלה כמעתיק☠
